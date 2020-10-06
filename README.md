@@ -8,7 +8,7 @@
 
 为什么喷子和杠精管不住自己，非要迁怒和恶意抬杠？
 
-为什么 [华为鸿蒙](https://www.zhihu.com/question/420506693/answer/1466076213)、[张文宏](https://www.zhihu.com/question/389612274/answer/1171586048)、[罗翔](https://zhuanlan.zhihu.com/p/234442555) 要被无端质疑、要被喷？
+为什么 [华为鸿蒙](https://www.zhihu.com/question/420506693/answer/1466076213)、[张文宏](https://www.zhihu.com/question/389612274/answer/1171586048)、[罗翔](https://zhuanlan.zhihu.com/p/234442555) 要被无端非议、要被喷？
 
 为什么 [14 岁的孩子打个牌却被母亲当众羞辱？](https://www.zhihu.com/question/421739665/answer/1494330197)……
 

@@ -25,7 +25,7 @@
 > 注：文中对 “穷人”、“弱者” 的定义是 “内心贫穷、弱小者”，他们无意识地陷于对 “心理上的生存劣势” 的逃避 而浑然不知。
 
 
-## 抬杠和迁怒不过是迫于 “心理上求生” 的倔强
+## 抬杠和迁怒不过是迫于 “心理上求生” 的代偿
 
 兜了一圈又回到了起点：[“最高频的是自利”](https://kunminx.gitbook.io/deep-thinking/past/pua-immunity)，只不过现如今有了对 [“思维、从 xx 出发”](https://kunminx.gitbook.io/deep-thinking/past/wechat-tiktok) 这一系列的结构和运作 的理解，乃至知道了，自利是最高频的出发点，思维其次。
 
